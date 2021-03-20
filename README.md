@@ -1,1 +1,1 @@
-# dibrivilskuy-github.io
+# dibrivilskuy.github.io
